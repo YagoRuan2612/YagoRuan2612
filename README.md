@@ -9,4 +9,7 @@ MEU NOME É Yago Ruan
 ### VOCÊ ENTRAR EM CONTATO COMIGO 📫
 
 yagoruanms@gmail.com
+
 @yagoruansilvasousakk
+
+![](https://media1.tenor.com/m/F2q8AHyHa4oAAAAC/goku-songoku.gif)
